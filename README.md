@@ -27,4 +27,7 @@ When someone asks something from you it's not your problem it's their problem.|J
 Wise men keep their plans to themselves and refrain from expressing uninvited opinions. This prevents others from appropriating their ideas and makes it difficult for others to interfere with their plans.|???
 Noone who can rise before dawn 360 days a year fails to make his family rich.|???
 The first sign of a non-drifter is this: He is always engaged in doing something definite, through some well-organized plan which is definite. He has a major goal in life toward which he is always working, and many minor goals, all of which lead toward his central scheme. The major distinguishing feature of the non-drifter is this: He has a mind of his own and uses it for all purposes.|???
+You can't become a pokemon master in pallet town.|Demiculus
+If something doesn't have a pirated version, then it is not worth checking out.|Goktug Yilmaz
+Do or do not. There is no try.|Master Yoda
 |
